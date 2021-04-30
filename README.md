@@ -1,2 +1,0 @@
-# KS-DUCK
-KS CLub
